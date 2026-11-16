@@ -1,0 +1,2 @@
+# pelatihan-tik
+mantabb bosqqq
